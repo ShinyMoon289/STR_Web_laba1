@@ -1,4 +1,1 @@
-Sample text
-tut byl Maxim Yermantovich
-i on pisal zdes code:/
-grderdgrdg
+Заходит как-то Армянин, Грузин и русский в ресторан...
